@@ -25,4 +25,4 @@ You can watch our projects in:
 [website](https:://commarka.app)
 [Instragram](https:://commarka.app)
 [YouTube](https:://commarka.app)
-[linkeIn](https:://commarka.app)
+[LinkedIn](https://www.linkedin.com/company/commarka-studios/)
